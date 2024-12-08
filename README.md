@@ -1,16 +1,32 @@
-## Hi there 👋
+![image](https://github.com/user-attachments/assets/22532e6e-f260-4294-9bac-f85266e95304)
 
-<!--
-**peqchu/peqchu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+<div id="header" align="center">
+  <h1>ᴄᴀʟʟ ᴍᴇ ʀɪɴᴀ❢🌸  ɪᴅᴍ ᴀɴʏ ɴɪᴄᴋɴᴀᴍᴇꜱ :ᴅ ꜱʜᴇ/ᴛʜᴇʏ ; ᴍɪɴᴏʀ ; ɪꜱᴛᴘ ; ᴇɴɢ/ʀᴜ </h1>
+	<h1>ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ɪɴᴛᴇʀᴀᴄᴛ❢ ᵇᵘᵗ ⁱᵐ ᵛᵉʳʸ ᵃʷᵏʷᵃʳᵈ ᵃⁿᵈ ᵈᵒⁿ'ᵗ ʳˡˡʸ ᵏⁿᵒʷ ʷʰᵃᵗ ᵗᵒ ˢᵃʸ ˢᵒᵐᵉᵗⁱᵐᵉˢ,,, </h1>
+<div	
+  align="center"![image](https://github.com/user-attachments/assets/ded59312-77b8-4460-95fb-8f2fd9bc54c0)
+ <h1>ꜱᴏᴍᴇ ᴏꜰ ᴍʏ ɪɴᴛᴇʀᴇꜱᴛꜱ  ·˚ ༘₊· ͟͟͞͞꒰➳
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+✿ ɢᴀᴍᴇꜱ: ʜꜱʀ, ɢᴇɴꜱʜɪɴ ɪᴍᴘᴀᴄᴛ, ᴡᴜᴛʜᴇʀɪɴɢ ᴡᴀᴠᴇꜱ, ᴢᴢᴢ, ʀᴇᴠᴇʀꜱᴇ1999, ᴘʀᴏꜱᴇᴋᴀ, ʙᴀɴᴅᴏʀɪ, ᴍᴜꜱᴇ ᴅᴀꜱʜ, ᴏᴍᴏʀɪ, ᴍᴏᴜᴛʜᴡᴀꜱʜɪɴɢ, ʜᴀʟꜰ ʟɪꜰᴇ, ʟ4ᴅ2,  ᴘʜᴀꜱᴍᴏᴘʜᴏʙɪᴀ, ꜰɴᴀꜰ, ᴅᴏᴏʀꜱ, ᴘʀᴇꜱꜱᴜʀᴇ, ᴘᴏᴘᴘʏ ᴘʟᴀʏᴛɪᴍᴇ, ᴜɴᴅᴇʀᴛᴀʟᴇ, ᴅᴇʟᴛᴀʀᴜɴᴇ, ᴄʀ:ᴋ/ᴄʀ:ᴏʙ, ᴍɪɴᴇᴄʀᴀꜰᴛ, ʜᴇɴʀʏ ꜱᴛɪᴄᴋᴍɪɴ 
+
+•┈••✦ ♡ ✦••┈•
+
+✧ ᴀɴɪᴍᴇ/ᴍᴀɴɢᴀ: ʙʟᴀᴄᴋ ʙᴜᴛʟᴇʀ, ʙꜱᴅ, ᴠᴀɴɪᴛᴀꜱ ɴᴏ ᴄᴀʀᴛᴇ, ꜱᴏᴜʟ ᴇᴀᴛᴇʀ, ᴅᴀɴᴅᴀᴅᴀɴ, ᴅʀ. ꜱᴛᴏɴᴇ, ʙᴏᴄᴄʜɪ ᴛʜᴇ ʀᴏᴄᴋ, ʜxʜ, ᴛʙʜᴋ, ʙᴀɴᴅᴏʀɪ, ʜɴᴋ
+
+∘₊✧──────✧₊∘
+
+✧ᴀɴɪᴍᴀᴛɪᴏɴ (ᴀɴᴅ ᴏᴛʜᴇʀ) ꜱᴇʀɪᴇꜱ: ʙꜰᴅɪ, ᴇᴅᴅꜱᴡᴏʀʟᴅ, ʜᴀᴢʙɪɴ ʜᴏᴛᴇʟ, ʜᴇʟʟᴜᴠᴀ ʙᴏꜱꜱ, ᴛᴀᴅᴄ, ꜱᴏᴜᴛʜ ᴘᴀʀᴋ, ᴀɴɪᴍᴀᴛɪᴏɴ ᴠꜱ ᴍɪɴᴇᴄʀᴀꜰᴛ/ᴀɴɪᴍᴀᴛᴏʀ, ᴍᴜʀᴅᴇʀ ᴅʀᴏɴᴇꜱ, ᴛᴀᴡᴏɢ, ʜᴇʀᴍɪᴛᴄʀᴀꜰᴛ, ʟɪꜰᴇ ꜱᴇʀɪᴇꜱ
+
+•┈••✦ ♡ ✦••┈•
+
+✿ ᴍᴜꜱɪᴄ: ᴍɪᴛꜱᴋɪ, ɪᴀꜱᴀʜ, ᴍɪʟɪ, ꜱᴀʙʀɪɴᴀ ᴄᴀʀᴘᴇɴᴛᴇʀ, ᴄʜᴀᴘᴘᴇʟʟ ʀᴏᴀɴ, ᴏᴅᴇᴛᴀʀɪ, 6ᴀʀʟᴇʏʜᴜᴍᴀɴ, ᴄɢ5, ᴀɴʏ ᴘᴏᴘᴜʟᴀʀ ᴠᴏᴄᴀʟᴏɪᴅ ᴘʀᴏᴅᴜᴄᴇʀ</h1>
+
+</div>
+
+ 
+ 
+![image](https://github.com/user-attachments/assets/37bd4df0-9031-4874-b2be-18bcb8146274)
+
+this took me way longer than it should've
+
